@@ -1,4 +1,4 @@
 # In a perfect society
 In a perfect society I think that the state would actually be authoritarian and would organize the workers towards what would be most effective for the good of those same workers. In theory, this sounds like it would look like Marxism, but that's not actually true. When you actually flesh out this idea of angels germinating society (Madison), it might look more like Facism. Contrary to what Madison thinks however, I think if men were angels, government would be the most effective structure to organize them into.
 
-Under Facism, the state uses its power to blend the interests and resources of classes in one unified force of interest. Rather than the two extremes of authoritarianism &mdash; 
+Under Facism, the state uses its power to blend the interests and resources of classes in one unified force of interest. Rather than the two extremes of authoritarianism&mdash; 
