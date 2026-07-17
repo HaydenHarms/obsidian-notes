@@ -1,1 +1,2 @@
  when there are two entities of similar strengths or at least similar enough to garner rivalry these two forces have a dynamic closer to that of a rubber band then say a constant static application of force.
+this theory is supported by the demonstrable interactions of fighters, animals, and nation states.
